@@ -4,4 +4,5 @@ conocenos
 En nuetra empresa tenemos lo mejor para ofrecer a tus dispositivos dañados es una con las mejores herramientas que te puede ofrecer el mercado 
 
 Nuestras instalaciones se encuentras en calle polanco por av. horacio a un costado de la calle de vino
-te podemos ayudar a tus dudas con llamarnos al numero
+te podemos ayudar a tus dudas con llamarnos al numero:TEL:5620463704 CEL:5530986238
+si tienes dudas contactanos al numero
