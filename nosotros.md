@@ -6,7 +6,7 @@ En nuetra empresa tenemos lo mejor para ofrecer a tus dispositivos dañados es u
 nuestra empresa tenemos a los mejores tecnicos de mexico certificados preparados en la escuela unam y politecnicos  
 
 ## UBICACION:
-Nuestras instalaciones se encuentras en calle polanco por av. horacio a un costado de la calle de vino
+Nuestras instalaciones se encuentras en calle polanco por av. horacio a un costado de la calle de vino cerca del parque polanco
 
 ### CONTACTANOS
 Te podemos ayudar a tus dudas con llamarnos al numero:TEL:5620463704 CEL:5530986238
