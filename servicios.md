@@ -1,6 +1,16 @@
 [Nosotros](./nosotros.md) . [Servicios](./servicios.md) . [FAQ](FAQ.md) . [Ubicación](ubicacion.md) . [Contacto](./contacto.md)
 
-Conoce a nuestro servicio 
-en nuestro servicio es el mejor que existe en toda la ciudad 
-en nuestro servicio tenemos varios paquetes que te pueden ayudar a lo largo de tu dispositivos  
+# Conoce a nuestro servicio papi 
+ 
+En nuestro servicio 
+ofrecemos:
 
+mantenimiento preventivo:En mantrenimiento preventivo podemos checar tu dispositivos para hacerle un chequo preventivo y hacerle unas limpieza a tus dispositivos
+
+mantenimiento correctivo: En nuestro servicio podemos hacer una reparacion a tu dispositivos 
+
+soporte tecnico a distancia
+
+soporte tecnico presencial
+
+soporte tecnico via remota
