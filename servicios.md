@@ -9,8 +9,10 @@ mantenimiento preventivo:En mantrenimiento preventivo podemos checar tu disposit
 
 mantenimiento correctivo: En nuestro servicio podemos hacer una reparacion a tu dispositivos y corregirlos con cual quier error tenga con precios muy accesible cual quier persona puede venir 
 
-soporte tecnico a distancia: En el soporte a distacia podemos ir a tu casa y revisar tus dispositivos 
+soporte tecnico a distancia: En el soporte a distacia podemos ir a tu casa y revisar tus dispositivos para revisar tus 
 
 soporte tecnico presencial: En soporte presencial puedes venir y dejar tus dispositivos para que los arreglamos con el mejor servicio 
 
-soporte tecnico via remota: podemos hacer el trabajo pero con diferencia que tu estes en tu casa y nosotros en las instalaciones como una video llamada
+soporte tecnico via remota: podemos hacer el trabajo pero con diferencia que tu estes en tu casa y nosotros en las instalaciones como una video llamada 
+
+En nuestrosa servicios tenemso muchos servicios y con buenas ofertas son las mejorees de mexico
