@@ -10,4 +10,4 @@
 7-Por qué no prende mi monitor: por qué el botón está roto por dentro
 8-por no sirven mis bocinas: por qué tienen agua adentro de la bocina 
 9-por que no prende mi webcam:por qué está mal configurada desde la PC
-10por que no entra 
+10por que no entra alas aplicación:por qué tienes un archivo que te lo impide
