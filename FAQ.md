@@ -1,11 +1,11 @@
 [Nosotros](./nosotros.md) . [Servicios](./servicios.md) . [FAQ](FAQ.md) . [Ubicación](ubicacion.md) . [Contacto](./contacto.md)
 
 # Preguntas
-1-Por qué se calienta mi PC:por qué está llena de polvo 
+1-Por qué se calienta mi PC?r qué está llena de polvo 
 
-2-Por qué ya prende mi PC:por qué no está bien conectado el cable de luz
+2-Por qué ya prende mi PC?or qué no está bien conectado el cable de luz
 
-3-Por qué ya tengo espacio:por qué tiene que borrar archivos
+3-Por qué ya tengo espaciopor qué tiene que borrar archivos
 
 4-Por qué no puedo mueve el mouse: por qué no tiene pila 
 
